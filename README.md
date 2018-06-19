@@ -1,2 +1,2 @@
 # cidadaogo
-cidadania pode vencer o mal
+vamos vencer o mal
